@@ -18,4 +18,4 @@ add me on discord if you want to buy it Madris#1575 or https://discord.gg/zmGTtt
 ![Screenshot_10](https://media.discordapp.net/attachments/930562706723962903/967257883274256404/d869c024-0814-4bee-9c6d-757f85341ab2.png)
 ![Screenshot_10](https://media.discordapp.net/attachments/930562706723962903/968318591583780864/Pubg.jpg)
 ![Screenshot_10](https://media.discordapp.net/attachments/930562706723962903/969423724371648583/unknown.png)
-.
+
