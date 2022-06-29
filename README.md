@@ -13,7 +13,7 @@ Radar
 
 aimbot/esp/Radar + menu = high animation and smooth 
 
-add me on discord if you want to buy thé cheat to use it or to buy thé source code --> Madris#1575 or https://discord.gg/zmGTttFbgu
+add me on discord if you want to buy thé cheat to use it or to buy thé source code --> Madris#1575 or https://discord.gg/4yD44vUV8M
 
 
 ![Screenshot_10](https://media.discordapp.net/attachments/930562706723962903/967257881873363034/IMG_20220415_011438.jpg)
